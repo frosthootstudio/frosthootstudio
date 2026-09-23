@@ -1,4 +1,4 @@
-# Hai, saya [Nama Kamu] 👋
+# Hai, saya mizulad 👋
 
 **Operator di siang hari, indie app builder di malam hari.**
 
